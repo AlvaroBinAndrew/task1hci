@@ -1,3 +1,5 @@
+### Kelompok G : -Andrew Alvaro Hazizi  -Asep Virgo   -Yafeth AP
+
 # Perahu Nelayan Tabrakan di Luwu Timur, 1 Warga Pangkep Tewas
 
 #### **Luwu Timur** – Dua perahu nelayan di Luwu Timur, Sulawesi Selatan (Sulsel), terlibat tabrakan. Satu orang meninggal dunia akibat insiden tersebut. “Korban atas nama Yasbar ditemukan meninggal dunia,” ujar Kapolres Luwu Timur AKBP Indratmoko kepada wartawan, Minggu (26/4/2020).
